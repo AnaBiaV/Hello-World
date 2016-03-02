@@ -2,5 +2,5 @@
 
 Hi.
 
-AnaBiaV here. I like to wake and drink 2 cups of coffe and water my garden. I go to college and play soccer too.
-Sunday I will try to make into my college's soccer team.
+AnaBiaV here. I really like to drink coffe. My passions are soccer, games and gym.
+English is not my first language but I study/hear it for a few hours each day. 
